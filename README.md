@@ -1,1 +1,1 @@
-# Finance-
+# Equity Research
